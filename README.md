@@ -1,4 +1,4 @@
-## 🚀 VeMayBay
+## 🚀 Airplane Ticket
 
 <div align="center">
 
